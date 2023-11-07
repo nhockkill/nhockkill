@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nhockkill
 - 👀 I’m interested in learning code
-- 🌱 I’m currently learning some subject in bach khoa high school
+- 🌱 I’m currently learning at Bach Khoa HCM city
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...
 
